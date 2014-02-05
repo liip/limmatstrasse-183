@@ -13,11 +13,11 @@ Escher-Wyss-Platz right before the Viaduct and very near to tram stop Quellenstr
 It's the old Radio 24 building, but they are currently totally
 renovating it, it will look very different from what you see on streetview.
 
-We will have the whole building for us alone (except the 3 flats they are building on top), in total 4 floors. A basement where we want to build the arena in one part (there's also natural light there) for events like Webtuesday, Teammeetings and more. The ground floor with kitchen, three meeting rooms and more space for working desks and the 1st and 2nd floor. All in all 1050 m<sup>2</sup>.
+We will have the whole building for us alone (except the 3 flats they are building on top), in total 4 floors. A basement where we want to build the arena in one part (there's also natural light there) for events like Webtuesday, Teammeetings and more. The ground floor with kitchen, three meeting rooms and more space for working desks and the 1<sup>st</sup> and 2<sup>nd</sup> floor. All in all 1050 m<sup>2</sup>.
 
 There will also be a shower and the Limmat is nearby for some jogging or swimming.
 
-The plan is to move in some time after the 1st of April.
+The plan is to move in some time after the 1<sup>st</sup> of April.
 
 ## Getting there
 

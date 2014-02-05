@@ -1,5 +1,6 @@
 # Limmatstrasse 183, Zürich 5
 
+we sublet the 2nd floor at our new office location starting in April/May 2014.
 
 It's at Limmatstrasse 183, Kreis 5, between Limmatplatz and
 Escher-Wyss-Platz right before the Viaduct and very near to Tram-Station
@@ -17,8 +18,7 @@ are building on top), meaning in total 4 floors. A basement where we want to bui
 
 There will also be a shower and the Limmat is nearby for some jogging or swimming.
 
-The plan is to move in at the 1st of April, but that depends a little
-bit on the builders and if they are really finished until then.
+The plan is to move in some time after the 1st of April
 
 ## Getting there
 
